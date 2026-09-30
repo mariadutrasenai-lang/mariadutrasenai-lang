@@ -1,5 +1,5 @@
 # Olá, me chamo Maria Eduarda ! 💗
-## Bem vindo ao meu perfil GitHub 👋
+## ℬℯ𝓂 𝓋𝒾𝓃𝒹ℴ 𝒶ℴ 𝓂ℯ𝓊 𝓅ℯ𝓇𝒻𝒾𝓁 𝒢𝒾𝓉ℋ𝓊𝒷 👋
 🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸✨🌸
 
 - 🔭 Atualmente estou estudando no CEPI Osvaldo, faço o 2° ano do ensino médio.
