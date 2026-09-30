@@ -5,7 +5,7 @@
 - 🔭 Atualmente estou estudando no CEPI Osvaldo, faço o 2° ano do ensino médio.
 - 🌱 Estou cursando o curso de Desenvolvimento de Sistema do senai. Estou procurando novos conhecimentos tecnologicos
 - 🩰 Pretendo trabalhar em áreas que envolvem beleza..
-<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExamczbTN6aDdnMDNyNmZ5cjZldGppOGM2bHhpMDJudm53YmMxNW00biZlcD12MV9naWZzX3NlYXJjaCZjdD1n/p0Zgq6zRrjiak/giphy.gif" alt="Gato digitando" width="400"> 
+      <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExamczbTN6aDdnMDNyNmZ5cjZldGppOGM2bHhpMDJudm53YmMxNW00biZlcD12MV9naWZzX3NlYXJjaCZjdD1n/p0Zgq6zRrjiak/giphy.gif" alt="Gato digitando" width="400">    
 
 
 
